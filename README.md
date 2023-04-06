@@ -1,1 +1,0 @@
-# birinchi dars
